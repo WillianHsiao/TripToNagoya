@@ -1,7 +1,5 @@
 ## 🛫 Day 1（8/9）：出發航班
 
-!出發航班
-
 ![image](https://github.com/user-attachments/assets/49b0fa82-812b-45b7-8ffa-55519a743b05)
 
 ### 🚆 交通方式
