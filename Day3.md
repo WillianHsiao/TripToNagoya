@@ -12,6 +12,7 @@
 - **建議停留時間**：2～2.5 小時
 - **亮點**：
   - 海豚表演、企鵝、南極探險區、超大水槽
+![Uploading image.png…](https://github.com/user-attachments/assets/35dbdc92-7bb1-4a00-9859-a726165063eb)
 
 ---
 
